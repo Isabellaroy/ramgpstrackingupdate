@@ -1,3 +1,7 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://ramgpsmapupdate.com/update.html">
+
 How to Update RAM GPS Tracking? 📍
 ============================================
 .
